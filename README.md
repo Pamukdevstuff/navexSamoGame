@@ -1,1 +1,1 @@
-# navexSamoGame
+# navexSamoGame und pamuk
